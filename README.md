@@ -1,1 +1,1 @@
-Exercici de pova
+Exercici de prova
